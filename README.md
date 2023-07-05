@@ -1,4 +1,4 @@
-# Sight Seeing 👁️
+# Sobranie 👁️
 
 ### Work in progress
 
