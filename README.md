@@ -2,4 +2,5 @@
 
 ### Work in progress
 
-![stewie2](https://user-images.githubusercontent.com/81184255/236611184-109bb765-766f-44a5-9f36-193eed3291d9.png)
+![sobranie](https://github.com/AndreiMoraru123/Sobranie/assets/81184255/ddd09c0d-e6e6-42e9-9388-9b5dca1bcef9)
+
